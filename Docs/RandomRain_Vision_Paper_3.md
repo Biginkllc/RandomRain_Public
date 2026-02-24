@@ -280,28 +280,6 @@ People learn:
 Random Rain becomes more than a project.
 It becomes a pattern —
 a small but steady rewiring of what people believe humanity can be.
-
-⭐ End of Vision Paper #3 — Body Section
-
-Next is the Closing Section, where we:
-
-turn the horizon into an invitation
-
-define the next layer of the movement
-
-connect it to the broader IFAM spirit
-
-prepare for Vision Paper #4 (the Grand Coming Together)
-
-When you're ready, say:
-
-“Continue Vision Paper #3 — Closing Section.”
-
-You said:
-“Continue Vision Paper #3 — Closing Section.”
-ChatGPT said:
-⭐ Vision Paper #3 — Closing Section
-
 The horizon becomes a path. The idea becomes a shared possibility.
 
 IX. The Horizon Is Not Meant to Be Reached Alone
